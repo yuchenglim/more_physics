@@ -17,3 +17,5 @@ The most important thing about learning English, Malay and Chinese is to pick a 
 Same applies to physics and mathematics.
 
 I actually ended up reading Griffiths, Purcell, Jackson, Vanderlinde, Bottcher and more, just to learn EM.... Anyway. Enjoy reading!
+
+P.S. remember to write notes. Every book gives different examples, take different perspectives. It's your job to compile all these different methods into a single file. I use Pilot Frixion to write notes. Read an record once, then use them for the rest of your life! Never throw them away, or do sloppy ones that end up in the waste bin!
