@@ -1,1 +1,3 @@
-# more_physics
+# More Physics: how to self-study anything
+
+
