@@ -9,3 +9,7 @@ https://amiso.my/
 
 More programming:  
 https://ioimalaysia.org/resource/for-student/self-learning/
+
+
+
+The most important thing about learning English, Malay and Chinese is to pick a book and read. Diversify your readings. Get a reading list. For ideas, search for summer reading lists and you'll realize how little we know, and how much other kids in, say the US, are doing.
